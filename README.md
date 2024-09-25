@@ -1,5 +1,4 @@
-![MasterHead](https://i.pinimg.com/originals/4a/94/37/4a94376ce05b507329402f5c81c26a36.gif)
-
+![MasterHead](https://www.zuken.com/us/wp-content/uploads/sites/12/2024/02/BL0745-Emerging-Trends-in-Quantum-Computing-for-Scientific-and-Industrial-Applications-Zuken-1510x731.jpg)
    ☺
   <img align="right" width="200" src="https://lh3.googleusercontent.com/proxy/-c2hxM66YdFne2MI70qy4RF4h0S7ah-Ot6b3CkzghVaVkxEKpJf0p97-ZkmMPJXzgHP0ozk3O6Dvswb2QN6gCg">
 
