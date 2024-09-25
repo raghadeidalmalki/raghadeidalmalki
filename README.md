@@ -1,9 +1,9 @@
 ![MasterHead](https://i.pinimg.com/originals/4a/94/37/4a94376ce05b507329402f5c81c26a36.gif)
 
-  ☺
+   ☺
   <img align="right" width="200" src="https://lh3.googleusercontent.com/proxy/-c2hxM66YdFne2MI70qy4RF4h0S7ah-Ot6b3CkzghVaVkxEKpJf0p97-ZkmMPJXzgHP0ozk3O6Dvswb2QN6gCg">
 
-- 📫 How to reach me **raghadeidalmalki@gmail.com**
+📫 How to reach me **raghadeidalmalki@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
