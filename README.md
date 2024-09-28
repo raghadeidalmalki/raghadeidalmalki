@@ -1,6 +1,4 @@
-![MasterHead](https://www.zuken.com/us/wp-content/uploads/sites/12/2024/02/BL0745-Emerging-Trends-in-Quantum-Computing-for-Scientific-and-Industrial-Applications-Zuken-1510x731.jpg)
    
-
 📫 How to reach me **raghadeidalmalki@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
